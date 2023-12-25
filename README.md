@@ -1,2 +1,1 @@
-# JN
-1cofirst3cocor2non4cofirstcocor5remove
+80-90 the clone number represents the exact number-79
