@@ -1,1 +1,1 @@
-apply for RA in David lab
+https://research.berkeley.edu/urap/application/
