@@ -1,3 +1,3 @@
-sent email to Stefanie Ebeling, waiting for reply.
+resent email to Stefanie Ebeling
 
 12
