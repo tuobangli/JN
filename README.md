@@ -1,1 +1,1 @@
-translate the reminding and not add more
+Finish, this is all?
