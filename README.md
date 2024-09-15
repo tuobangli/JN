@@ -1,3 +1,5 @@
-Book a SAT exam and AP exams.
+Infer metabolic velocities from moment differences of molecular weight distributions
+
+submit to PNAS
 
 
