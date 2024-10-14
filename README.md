@@ -1,5 +1,6 @@
 Infer metabolic velocities from moment differences of molecular weight distributions
 
-submit to PNAS
+submit to National Science Review
+
 
 
