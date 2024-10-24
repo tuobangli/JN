@@ -1,4 +1,3 @@
-Infer metabolic velocities from moment differences of molecular weight distributions
+using the comparison, 
 
-Affiliation, Technion, Berkeley, a Chinese institution.
-
+Legally, its relationship with STU or Technion is similar to the University of Wisconsin-Platteville Richland to University of Wisconsin–Madison. 
